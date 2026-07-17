@@ -1,0 +1,1 @@
+# smcamp_okayama_sc
